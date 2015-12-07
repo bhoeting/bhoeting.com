@@ -1,2 +1,1 @@
-# bhoeting.com
-Muh site.
+# ¯\\_(ツ)_/¯
